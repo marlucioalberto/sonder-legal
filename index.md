@@ -66,7 +66,7 @@ If we ever update this privacy policy, the updated version will be available wit
 
 If you have any questions about this Privacy Policy, please contact us at:
 
-**[your-email@example.com]**
+**marlucio.alberto@gmail.com**
 
 ---
 
